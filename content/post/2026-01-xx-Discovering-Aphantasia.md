@@ -10,7 +10,7 @@ No, what we I am referring to is the absence of mental imagery.
 ![Blurred image of a 3 by 3 grid of images](https://blog.neilcford.uk/images/2025PersonalEndOfYear_blurred.png)
 
 *I hold all the projector slides and have all the information, but can’t see the actual picture.*
-NAYANTARA DUTTA, [Time Magazine](https://time.com/6155443/aphantasia-mind-blind/) 
+NAYANTARA DUTTA, [Time Magazine, March 2022](https://time.com/6155443/aphantasia-mind-blind/) 
 
 [Aphantasia: A life without mental images. BBC News August 2015](https://www.bbc.co.uk/news/health-34039054)
 

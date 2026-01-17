@@ -4,7 +4,7 @@ title: From pocket notebook to Traveler’s Notebook, my Bullet Journal journey
 slug: From-pocket-notebook-to travelers-notebook
 ---
 
-I've been using a pocket notebook ([Leuchtturm 1917](https://www.leuchtturm1917.co.uk/jottbook-double.html), [Field Notes](https://fieldnotesbrand.com/products/pitch-black-memo-book), [Bullet Journal Pocket](https://www.leuchtturm1917.co.uk/bullet-journal-pocket.html)) to [bullet journal](https://bulletjournal.com) consistently for about a year now, so I decided to level up for 2026 and upgrade to a [Traveler's Company Notebook](https://www.travelers-company.com) in their [Passport](https://www.travelers-company.com/products/trnote/starter-kit-passport) size. 
+I've been using a pocket notebook ([Leuchtturm1917](https://www.leuchtturm1917.co.uk/jottbook-double.html), [Field Notes](https://fieldnotesbrand.com/products/pitch-black-memo-book), [Bullet Journal Pocket](https://www.leuchtturm1917.co.uk/bullet-journal-pocket.html)) to [bullet journal](https://bulletjournal.com) consistently for about a year now, so I decided to level up for 2026 and upgrade to a [Traveler's Company Notebook](https://www.travelers-company.com) in their [Passport](https://www.travelers-company.com/products/trnote/starter-kit-passport) size. 
 
 I started out doing some research, ended up disappearing down some YouTube rabbit holes [1](https://youtu.be/wxeq1HcIx6E?si=u5dBlM1CW-AHgmrG) [2](https://youtu.be/2q_lFLCyRNY?si=xnPLgXa5FJRv0n3P), but did eventually make a few purchases.
 
