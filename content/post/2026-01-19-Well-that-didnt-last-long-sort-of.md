@@ -3,7 +3,7 @@ date: '2026-01-19'
 title:  Well, that didn't last long, sort of  
 slug: Well-that-didnt-last-long-sort-of  
 ---  
-Just over two weeks ago I wrote[From pocket notebook to Traveler’s Notebook, my Bullet Journal journey](https://blog.neilcford.uk/post/from-pocket-notebook-to-travelers-notebook/), which as the title suggests was about using a [Traveler's Company Passport Notebook](https://www.travelers-company.com/products/trnote/starter-kit-passport) as my everyday carry notebook.
+Just over two weeks ago I wrote [From pocket notebook to Traveler’s Notebook, my Bullet Journal journey](https://blog.neilcford.uk/post/from-pocket-notebook-to-travelers-notebook/), which as the title suggests was about using a [Traveler's Company Passport Notebook](https://www.travelers-company.com/products/trnote/starter-kit-passport) as my everyday carry notebook.
 
 In the post I wrote:
 
@@ -13,7 +13,7 @@ I'm sorry to say I lasted five days.
 
 I haven't abandoned the principle or the process, just the products in use. I quickly discovered that the pages in a passport sized insert were too small for my messy handwriting, far too many things were taking up two lines, when in a slightly larger notebook, they would have only been one. Or I found myself cutting short my notes to fit, which really defeated the point.
 
-At the same time I had been flipping backwards and forwards on what I was going to use as a journal / thinking /commonplace book. I kept circling back to some kind of A5 notebook, again because of page size requirements, contemplating re-tasking an existing [Leuchtturm1917 dot grid](https://www.leuchtturm1917.co.uk/notebook-classic.html) I already had or possibly using a Tamoe River paper notebook from [Miso Paper](https://misopaper.co.uk/product/tomoe-river-paper-a5-notebook-cream-68gsm-dot-grid/). But my problem was that I didn't really want to carry around an A5 notebook, the very reason why I had switched to pocket notebooks and then the Traveler's Notebook.
+At the same time I had been flipping backwards and forwards on what I was going to use as a journal / thinking / commonplace book. I kept circling back to some kind of A5 notebook, again because of page size requirements, contemplating re-tasking an existing [Leuchtturm1917 dot grid](https://www.leuchtturm1917.co.uk/notebook-classic.html) I already had or possibly using a Tamoe River paper notebook from [Miso Paper](https://misopaper.co.uk/product/tomoe-river-paper-a5-notebook-cream-68gsm-dot-grid/). But my problem was that I didn't really want to carry around an A5 notebook, the very reason why I had switched to pocket notebooks and then the Traveler's Notebook.
 
 It was whilst out for a walk, and coffee, that I realised I had a solution to both issues already - the [Bullet Journal Pocket Notebook](https://www.leuchtturm1917.co.uk/bullet-journal-pocket.html) that I had been using before. The beauty of this notebook is that when open and turned to a landscape orientation, the double page spread is the same size as an A5 page. It's really designed to be used that way as the page numbers are the bottom of each two page spread.
 
