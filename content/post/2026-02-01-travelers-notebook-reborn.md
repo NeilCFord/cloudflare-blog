@@ -36,8 +36,9 @@ I haven't put the whole package to considerable use yet, but what little I have 
 My Traveler's Notebook is reborn, my interest in roleplaying has been rekindled and I have another reason not to reach for my phone. I think we can call that a win.
 
 ### Downloads
-* [Four Against Darkness B6 size character sheets, 2 up on an A4 page](https://blog.neilcford.uk/files/4AD_B6_CharacterSheet_2up_on_A4.pdf) (4AD_B6_CharacterSheet_2up_on_A4.pdf)
-* [Four Against Darkness B6 size character sheets, 2 up on a US Letter page](https://blog.neilcford.uk/files/4AD_B6_CharacterSheet_2up_on_USLetter.pdf) (4AD_B6_CharacterSheet_2up_on_USLetter.pdf)
+* [Four Against Darkness B6 size character sheets, 2 up on an A4 page](https://blog.neilcford.uk/files/4AD_B6_CharacterSheet_2up_on_A4v2.pdf) (4AD_B6_CharacterSheet_2up_on_A4v2.pdf)
+* [Four Against Darkness B6 size character sheets, 2 up on a US Letter page](https://blog.neilcford.uk/files/4AD_B6_CharacterSheet_2up_on_USLetterv2.pdf) (4AD_B6_CharacterSheet_2up_on_USLetterv2.pdf)
+* [Four Against Darkness B6 size character sheet on A5](https://blog.neilcford.uk/files/4AD_B6_CharacterSheet_on_A5v2.pdf) (4AD_B6_CharacterSheet_on_A5v2.pdf)
 * [Four Against Darkness Expanded Edition Page Reference (rich text file)](https://blog.neilcford.uk/files/4AD_ExpandedEditionPageReferences.rtf) (4AD_ExpandedEditionPageReferences.rtf)
 * [Four Against Darkness Expanded Edition Page Reference (A4 PDF)](https://blog.neilcford.uk/files/4AD_ExpandedEditionPageReferences.pdf) (4AD_ExpandedEditionPageReferences.pdf)
 
