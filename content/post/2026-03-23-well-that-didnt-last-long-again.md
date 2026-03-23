@@ -1,6 +1,6 @@
 ---  
-date: ’2026-03-23’  
-title:  Well, that didn’t last long... again
+date: '2026-03-23'  
+title:  Well, that didn't last long... again
 slug: well-that-didnt-last-long-again  
 ---  
 In my [last post](https://blog.neilcford.uk/post/traveler-notebook-reborn/) I wrote:
