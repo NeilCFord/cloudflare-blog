@@ -1,5 +1,5 @@
 ---  
-date: '2028-08-06'  
+date: '2026-08-06'  
 title:  Mid 2026 Techo Kaigi  
 slug: mid-2026-techo-kaigi  
 ---  
