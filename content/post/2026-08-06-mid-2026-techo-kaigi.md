@@ -28,6 +28,8 @@ All of this had been working well until recently when I went to visit [All Thing
 
 All of this is to say that I am now back where I started at the beginning of the year, well at least sort of. Shelved are the B6+ and A5 notebooks and I am using two pocket notebooks, both in the leather cover. One is my bullet journal / journal / photo journal and the other a thinking / commonplace / waste book. I can stick full size ( 4 x 6 inch) prints from the Selphy in them, but honestly I was rarely doing that anyway, and half size prints fit just fine, as do the square prints from the Instax and my, also recently acquired, [Canon Selphy QX20](https://www.canon.co.uk/printers/selphy-qx20/) (I have more printers that I really need). I'm still figuring out if I want journal entries and photos inline with my daily log or separate, starting from the back of the book, but that's fine. I'll find a rhythm soon enough.
 
+![Double page spread of an A6 pocket notebook featuring a photo of the same notebook!](https://blog.neilcford.uk/images/PocketNotebook_202608.jpg)
+
 Oh, one minor change I had made to my EDC notebook, again probably starting about May time was to draw monthly spreads in the back for the current month and the next three months, just so that I had a quick reference for upcoming items of note. My Apple Calendar is still the "one true source", but this means I don't have to reach for a device to check my general availability. 
 
 ![Photo a monthly spread for October 2026 drawn over two pages of an A6 notebook](https://blog.neilcford.uk/images/MontlhlySpread_202607.jpeg)
