@@ -6,7 +6,7 @@ slug: mid-2026-techo-kaigi
 **Techo Kaigi**
 > Japanese term that translates to a personal meeting with oneself. This practice involves evaluating and reflecting on one's planner setup to ensure it aligns with personal goals and needs.
 
-I wasn't sure I was going to write this blog, purely on the basis that I wasn't convinced it wad needed, but I recently changed how I use my notebooks, and that, combined with a post on Facebook asking how people [bullet journal](https://bulletjournal.com) with a [Travelers Notebook](https://www.travelers-company.com/products/trnote/about), convinced me to document my updated setup.
+I wasn't sure I was going to write this blog, purely on the basis that I wasn't convinced it was needed, but I recently changed how I use my notebooks, and that, combined with a post on Facebook asking how people [bullet journal](https://bulletjournal.com) with a [Travelers Notebook](https://www.travelers-company.com/products/trnote/about), convinced me to document my updated setup.
 
 Previously I've [written](https://blog.neilcford.uk/post/well-that-didnt-last-long-sort-of/) about settling on the [Bullet Journal Pocket Notebook](https://www.leuchtturm1917.co.uk/bullet-journal-pocket.html) as my everyday carry notebook of choice and also about using a Travelers Company [Passport sized insert](https://goodinkpressions.com/products/007-60-pages-68gsm-tomoe-river-white?variant=39270711918676) as a [photo journal](https://blog.neilcford.uk/post/well-that-didnt-last-long-again/).
 
@@ -34,4 +34,4 @@ Oh, one minor change I had made to my EDC notebook, again probably starting abou
 
 ![Photo a monthly spread for October 2026 drawn over two pages of an A6 notebook](https://blog.neilcford.uk/images/MontlhlySpread_202607.jpeg)
 
-How long will the current setup last? Who knows? But seeing as I seem to gravitate back to pocket notebooks whenever I try something else, I have high hopes that I won't be needing too write an update post anytime soon. 
+How long will the current setup last? Who knows? But seeing as I seem to gravitate back to pocket notebooks whenever I try something else, I have high hopes that I won't be needing to write an update post anytime soon. 
