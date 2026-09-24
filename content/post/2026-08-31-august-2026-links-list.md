@@ -34,7 +34,7 @@ Below I present links to things that have caught my attention over the last mont
 - [Bullet Journal Checklist & Guide (requires newsletter signup)](https://philographia.kit.com/bulletjournalchecklist)
 
 **Peter McKinnon**
-- [How I cured my phone addiction with 2 tiny notebooks ( YouTube)](https://youtu.be/EXaQ_lU4JIM?is=SqD2UqhIjOnwdQMX)
+- [How I cured my phone addiction with 2 tiny notebooks (YouTube)](https://youtu.be/EXaQ_lU4JIM?is=SqD2UqhIjOnwdQMX)
 
 ## Artificial Intelligence 
 **Cal Newport**
